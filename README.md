@@ -1,3 +1,3 @@
 # Projects
 
-Project portfolio 
+Collection of recent projects - thank you for stopping by. 
